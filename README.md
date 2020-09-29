@@ -1,0 +1,2 @@
+# MeiSintaDewiFatimah_E31201195
+assignment algoritma dan pemrograman
